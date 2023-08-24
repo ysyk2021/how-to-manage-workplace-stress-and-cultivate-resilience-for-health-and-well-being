@@ -1,5 +1,3 @@
-Overview of Mindfulness and Relaxation Techniques for Improved Coping
-=========================================================================================================================================================
 
 Incorporating mindfulness and relaxation techniques into daily life can help improve coping skills and reduce workplace stress. In this chapter, we will provide an overview of mindfulness and relaxation techniques for improved coping.
 

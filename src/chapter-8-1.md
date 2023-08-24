@@ -1,5 +1,3 @@
-Overview of Technology Solutions for Stress Management and Resilience
-=====================================================================================================================================================
 
 Technology can be a valuable tool for managing workplace stress and building resilience. In this chapter, we will discuss an overview of technology solutions for stress management and resilience.
 

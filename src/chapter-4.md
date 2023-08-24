@@ -1,5 +1,3 @@
-Chapter 4: Developing Personal Resilience for Improved Coping
-=============================================================
 
 Developing personal resilience is essential for managing workplace stress and promoting overall well-being. In this chapter, we will discuss the definition of resilience, the importance of personal resilience in managing workplace stress, and techniques for developing personal resilience.
 

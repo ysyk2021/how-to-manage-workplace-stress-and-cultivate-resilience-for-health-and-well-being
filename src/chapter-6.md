@@ -1,5 +1,3 @@
-Chapter 6: Building a Support Network for Improved Coping and Resilience
-========================================================================
 
 Building a support network is essential for managing workplace stress and building resilience. In this chapter, we will discuss the importance of support networks in managing workplace stress and building resilience, as well as strategies for building a supportive network.
 

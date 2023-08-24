@@ -1,5 +1,3 @@
-Techniques for Incorporating Mindfulness and Relaxation Practices into Daily Life
-=====================================================================================================================================================================
 
 Incorporating mindfulness and relaxation techniques into daily life can help improve coping skills and reduce workplace stress. In this chapter, we will discuss techniques for incorporating mindfulness and relaxation practices into daily life.
 

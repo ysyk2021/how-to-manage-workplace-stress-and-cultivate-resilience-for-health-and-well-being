@@ -1,5 +1,3 @@
-The Impact of Workplace Stress on Health and Well-being
-================================================================================
 
 Workplace stress is a common issue that affects individuals across various industries and job roles. It can have a significant impact on both physical and mental health, as well as overall well-being.
 

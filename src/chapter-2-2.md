@@ -1,5 +1,3 @@
-Causes and Effects of Workplace Stress
-=================================================================================
 
 Understanding workplace stress is essential to managing it effectively. In this chapter, we will discuss the causes and effects of workplace stress.
 

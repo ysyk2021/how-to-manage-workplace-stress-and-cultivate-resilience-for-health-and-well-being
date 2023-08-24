@@ -1,5 +1,3 @@
-Definition of Resilience
-=======================================================================================
 
 Developing personal resilience is essential to managing workplace stress and promoting overall well-being. In this chapter, we will discuss the definition of resilience.
 

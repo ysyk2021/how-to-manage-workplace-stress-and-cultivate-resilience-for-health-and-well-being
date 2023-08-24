@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change requires effort, dedication, and a clear plan of action. In this chapter, we will discuss strategies for implementing lasting change to manage workplace stress and cultivate resilience.
 

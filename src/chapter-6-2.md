@@ -1,5 +1,3 @@
-Strategies for Building a Supportive Network
-======================================================================================================================
 
 Building a support network is essential for managing workplace stress and building resilience. In this chapter, we will discuss strategies for building a supportive network.
 

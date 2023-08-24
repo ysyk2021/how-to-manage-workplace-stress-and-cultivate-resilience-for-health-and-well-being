@@ -1,5 +1,3 @@
-Definition of Workplace Stress
-=========================================================================
 
 Understanding workplace stress is essential to managing it effectively. In this chapter, we will discuss the definition of workplace stress.
 

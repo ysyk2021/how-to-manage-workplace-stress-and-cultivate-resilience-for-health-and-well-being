@@ -1,5 +1,3 @@
-Techniques for Coping with Workplace Stress in Healthy Ways
-=======================================================================================================================
 
 Managing workplace stress is essential to maintaining health and well-being in the workplace. In this chapter, we will discuss techniques for coping with workplace stress in healthy ways.
 

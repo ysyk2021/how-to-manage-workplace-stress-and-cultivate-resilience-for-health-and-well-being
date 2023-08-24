@@ -1,5 +1,3 @@
-Overview of Coping Mechanisms for Managing Workplace Stress
-=======================================================================================================================
 
 Managing workplace stress is essential to maintaining health and well-being in the workplace. In this chapter, we will discuss coping mechanisms for managing workplace stress.
 

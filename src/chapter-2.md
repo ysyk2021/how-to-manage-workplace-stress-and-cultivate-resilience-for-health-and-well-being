@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Stress
-=========================================
 
 Workplace stress is a common experience for many employees, and it can have a significant impact on their health and well-being. In this chapter, we will explore the definition of workplace stress, its causes and effects.
 

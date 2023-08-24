@@ -1,5 +1,3 @@
-Chapter 9: Incorporating Mindfulness and Relaxation Techniques for Improved Coping
-==================================================================================
 
 Incorporating mindfulness and relaxation techniques into daily life can help individuals manage workplace stress and promote overall well-being. In this chapter, we will discuss an overview of mindfulness and relaxation techniques for improved coping and techniques for incorporating these practices into daily life.
 

@@ -1,5 +1,3 @@
-Importance of Personal Resilience in Managing Workplace Stress
-=============================================================================================================================
 
 Personal resilience is crucial for effectively managing workplace stress and promoting overall well-being. In this chapter, we will discuss the importance of personal resilience in managing workplace stress.
 

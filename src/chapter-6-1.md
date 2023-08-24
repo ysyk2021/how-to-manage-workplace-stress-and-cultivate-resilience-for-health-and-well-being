@@ -1,5 +1,3 @@
-Importance of Support Networks in Managing Workplace Stress and Building Resilience
-=============================================================================================================================================================
 
 Building a support network is essential for managing workplace stress and building resilience. In this chapter, we will discuss the importance of support networks in managing workplace stress and building resilience.
 

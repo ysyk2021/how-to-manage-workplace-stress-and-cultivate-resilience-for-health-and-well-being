@@ -1,5 +1,3 @@
-Common Obstacles to Effective Stress Management and Resilience
-=============================================================================================================================================
 
 While managing workplace stress and building resilience are essential for promoting overall health and well-being, there are often obstacles that can make it challenging. In this chapter, we will discuss common obstacles to effective stress management and resilience-building.
 

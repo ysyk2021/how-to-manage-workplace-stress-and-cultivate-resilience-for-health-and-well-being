@@ -1,5 +1,3 @@
-Selecting and Implementing Appropriate Technologies
-===================================================================================================================================
 
 In the previous chapter, we discussed an overview of technology solutions for stress management and resilience. In this chapter, we will discuss how to select and implement appropriate technologies for managing workplace stress and building resilience.
 

@@ -1,5 +1,3 @@
-Chapter 8: Leveraging Technology for Improved Stress Management and Resilience
-==============================================================================
 
 Technology can be a powerful tool for managing workplace stress and promoting resilience. In this chapter, we will discuss an overview of technology solutions for stress management and resilience and techniques for selecting and implementing appropriate technologies.
 

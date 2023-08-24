@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 In this final chapter, we will discuss implementation strategies for lasting change in managing workplace stress and building resilience. Specifically, we will focus on tracking progress and celebrating successes.
 

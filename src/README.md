@@ -10,3 +10,7 @@ Subsequent chapters will delve deeper into each component of effective stress ma
 Throughout the book, we will draw on real-world examples of successful stress management and resilience-building, as well as common mistakes and challenges that employees and organizations may encounter. By mastering the skills and strategies outlined in this book, you can become more resilient, reduce workplace stress, and promote health and well-being for yourself and your colleagues.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

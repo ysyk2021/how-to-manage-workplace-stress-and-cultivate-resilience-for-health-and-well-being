@@ -1,5 +1,4 @@
-Chapter 10: Overview of Technology Solutions for Stress Management and Resilience
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the fast-paced world of today's workplace, technology has become a valuable ally in the quest to manage stress and cultivate resilience. This chapter provides an overview of various technology solutions and tools designed to support stress management and resilience-building efforts, offering practical insights into how they can be harnessed for improved health and well-being.
 

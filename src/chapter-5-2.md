@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Incorporating Stress-Reduction Practices into Daily Life
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effectively managing workplace stress and cultivating resilience requires the integration of stress-reduction practices into one's daily routine. In this chapter, we explore practical techniques and strategies to seamlessly incorporate these practices into the fabric of everyday life, promoting a healthier and more balanced approach to work and well-being.
 

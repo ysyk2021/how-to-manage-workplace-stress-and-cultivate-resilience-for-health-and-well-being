@@ -1,5 +1,4 @@
-Chapter 9: Selecting and Implementing Appropriate Technologies
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the modern workplace, technology can be a valuable ally in managing workplace stress and cultivating resilience. This chapter explores the process of selecting and effectively implementing appropriate technologies to support your journey towards health and well-being while effectively dealing with workplace stress.
 

@@ -1,5 +1,4 @@
-Chapter 4: Common Obstacles to Effective Stress Management and Resilience
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of managing workplace stress and fostering resilience, individuals often encounter a variety of obstacles that can hinder their progress. This chapter examines the common barriers and challenges that individuals face on their journey towards effective stress management and resilience cultivation.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Importance of Stress-Reduction Practices for Managing Workplace Stress
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the fast-paced and demanding world of modern workplaces, stress has become an almost ubiquitous companion for many employees. From looming deadlines and heavy workloads to interpersonal conflicts and organizational pressures, the sources of stress can seem endless. However, managing workplace stress is crucial not only for your mental and emotional well-being but also for your physical health and overall job performance.
 

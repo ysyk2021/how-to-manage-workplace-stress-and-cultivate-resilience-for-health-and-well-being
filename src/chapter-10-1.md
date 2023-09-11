@@ -1,5 +1,4 @@
-Chapter 6: Creating a Roadmap for Managing Workplace Stress and Cultivating Resilience
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a roadmap for managing workplace stress and cultivating resilience is a strategic approach to ensure that you can navigate the challenges of your professional life while prioritizing your health and well-being. In this chapter, we will outline a step-by-step process to help you create a personalized roadmap tailored to your unique needs and circumstances.
 

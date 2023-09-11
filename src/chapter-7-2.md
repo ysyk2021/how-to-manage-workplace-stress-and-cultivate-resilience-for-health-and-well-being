@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Overcoming Workplace Stress Management and Resilience-Building Obstacles
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore effective strategies for overcoming the common obstacles that hinder the successful management of workplace stress and the cultivation of resilience. By addressing these challenges head-on, individuals can enhance their well-being and thrive in demanding work environments.
 

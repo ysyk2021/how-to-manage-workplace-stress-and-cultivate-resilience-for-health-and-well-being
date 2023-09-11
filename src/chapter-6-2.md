@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building a Supportive Network
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to manage workplace stress and cultivate resilience, building a strong and supportive network can be a cornerstone of success. This chapter explores effective strategies for creating and nurturing a network that contributes to health and well-being.
 

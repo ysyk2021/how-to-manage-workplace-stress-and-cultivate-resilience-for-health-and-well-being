@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Developing Personal Resilience
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a dynamic quality that can be cultivated and strengthened over time. In this chapter, we explore practical techniques and strategies for developing personal resilience in the face of workplace stress and challenges.
 

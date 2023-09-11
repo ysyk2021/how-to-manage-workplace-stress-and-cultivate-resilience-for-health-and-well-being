@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Coping with Workplace Stress in Healthy Ways
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the challenging landscape of the modern workplace, coping with stress is not just a necessity but a skill that can greatly impact your overall health and well-being. Learning to manage workplace stress in healthy ways is essential for maintaining a balanced and fulfilling professional life. In this chapter, we will explore a range of effective techniques and strategies to help you cope with workplace stress in a positive and constructive manner.
 

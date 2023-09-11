@@ -1,5 +1,4 @@
-Chapter 7: Overview of Mindfulness and Relaxation Techniques for Improved Coping
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mindfulness and relaxation techniques are powerful tools for managing workplace stress and enhancing resilience. In this chapter, we will explore the fundamental principles and benefits of mindfulness, as well as various relaxation techniques that can help you cope with stress effectively.
 

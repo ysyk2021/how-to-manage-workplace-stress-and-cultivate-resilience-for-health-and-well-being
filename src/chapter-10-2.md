@@ -1,5 +1,4 @@
-Chapter 5: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of managing workplace stress and nurturing resilience, it's essential not only to implement coping mechanisms but also to track your progress and acknowledge your achievements along the way. This chapter focuses on the importance of monitoring your journey and celebrating your successes as you strive for improved health and well-being in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 1: Definition of Workplace Stress
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the nature of workplace stress is the first step in effectively managing it and cultivating resilience for overall health and well-being. In this chapter, we explore the concept of workplace stress and its various dimensions.
 

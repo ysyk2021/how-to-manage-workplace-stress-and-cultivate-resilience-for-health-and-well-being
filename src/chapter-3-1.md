@@ -1,5 +1,4 @@
-Chapter 4: Overview of Coping Mechanisms for Managing Workplace Stress
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to manage workplace stress and cultivate resilience, it is crucial to understand and employ various coping mechanisms effectively. Coping mechanisms are the strategies, behaviors, and techniques we use to deal with stressors and their associated emotions. In this chapter, we will provide an overview of different coping mechanisms that can be employed to tackle workplace stress and enhance overall health and well-being.
 

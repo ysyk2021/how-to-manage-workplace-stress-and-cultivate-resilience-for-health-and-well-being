@@ -1,5 +1,4 @@
-Chapter 4: Importance of Support Networks in Managing Workplace Stress and Building Resilience
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of managing workplace stress and cultivating resilience, the role of support networks cannot be overstated. This chapter delves into the significance of support networks in the context of the modern workplace.
 

@@ -1,5 +1,4 @@
-Chapter 2: Causes and Effects of Workplace Stress
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding the causes and effects of workplace stress is essential for developing effective strategies to manage it and cultivate resilience. In this chapter, we delve into the various factors that contribute to workplace stress and the far-reaching consequences it can have.
 

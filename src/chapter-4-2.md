@@ -1,5 +1,4 @@
-Chapter 3: Importance of Personal Resilience in Managing Workplace Stress
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to manage workplace stress effectively and foster overall health and well-being, personal resilience stands as a critical pillar. This chapter underscores the significance of personal resilience in the context of navigating the challenges of the modern workplace.
 

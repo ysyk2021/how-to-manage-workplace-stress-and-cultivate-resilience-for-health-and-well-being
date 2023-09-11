@@ -1,5 +1,4 @@
-Chapter 2: Definition of Resilience
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a foundational concept in the pursuit of managing workplace stress and achieving overall health and well-being. In this chapter, we will explore the definition of resilience and its significance in the context of the modern workplace.
 

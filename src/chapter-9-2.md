@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Incorporating Mindfulness and Relaxation Practices into Daily Life
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating mindfulness and relaxation practices into your daily life is key to effectively managing workplace stress and cultivating resilience. This chapter provides practical techniques and strategies to seamlessly integrate these practices into your routine, helping you achieve a balanced and healthier work-life harmony.
 
